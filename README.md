@@ -1,2 +1,0 @@
-# digitalwisdom
-Digital Wisdom
